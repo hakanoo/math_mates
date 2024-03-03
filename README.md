@@ -1,4 +1,4 @@
-#Math Mates Privacy Policy
+# Math Mates Privacy Policy
 
 Last Updated: [03.03.2024]
 
